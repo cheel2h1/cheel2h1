@@ -1,7 +1,7 @@
 ## hey read there
 dont need none of you' pity ,i have my own. dont pity me. if you wanna unfriend ,just say so. dont act all zestfest ,youre annoying asf.you weird fuck ,i hate you so much. leave me alone ,i dont even like you.fucking physcho get a life ,youre so hurtful to look.the fact that YOU BOTHER ME THIS MUCH that i am writing all this down is very embarassing ,fucking take accountability .youre such a embarassment i cant believe a person like you exists .i hate you,you destroyed my life .fuck you get out of my life
 
-.i could never be the same after what you did that day.dont act all innocent.that day ,it was thursday.july 25th.if you have forgot.YES ,it was that serious.
+.i could never be the same after what you did that day.dont act all innocent.that day ,it was thursday.july 25th.if you have forgot.YES ,it was that serious
 <!--
 **cheel2h1/cheel2h1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

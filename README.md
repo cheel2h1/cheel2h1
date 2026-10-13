@@ -1,5 +1,5 @@
 ## hey read there
-dont need none of you' pity ,i have my own. dont pity me. if you wanna unfriend ,just say so. dont act all zestfest ,youre annoying asf.
+dont need none of you' pity ,i have my own. dont pity me. if you wanna unfriend ,just say so. dont act all zestfest ,youre annoying asf.you weird fuck ,i hate you so much. leave me alone ,i dont even like you.fucking physcho get a life ,youre so hurtful to look.
 
 <!--
 **cheel2h1/cheel2h1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

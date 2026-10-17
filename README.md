@@ -32,7 +32,7 @@ Surrealism Is The..] Stop lying duh.
 +more
 
 <p align="center">
-  <img src="https://cdn.phototourl.com/member/2026-10-17-7f11cf23-ec21-44f1-b803-030fe4943fc7.jpg="400" />
+  <img src="https://cdn.phototourl.com/member/2026-10-17-7f11cf23-ec21-44f1-b803-030fe4943fc7.jpg" width="700">
 </p>
 
 look.im not saying that im the victim here(even tho,which i am)but you should stop spreading rumor about me.rumors spread so quick.too quick even if youre telling it to only one person

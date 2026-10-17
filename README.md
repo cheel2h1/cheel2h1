@@ -10,6 +10,8 @@ dont view anyone under you.
 oh,and im arent racist,you fuck.thats the MOST STUPIDEST EXCUSE.you disgust me.you wanted to be friends back,right?so whats the issue?why do you hate me suddenly?mind you,i wasnt even online for weeks.when i came back or was offline,i thought you,or any other friends would ask if im good.BUT NO.the fuck i instantly faced was "oh jay ++++ told me youre a racist!" you hurt me.and not only one person told me this,many people told me this.this was not nice.not.
 
 and my own friends, "jay you sweared so much,we cant be friends",well i cannot act like anything isnt affecting me.id rather slur everyday than act like nothing matters
+
+dont think im stupid,youre only kidding your own self.
 <!--
 **cheel2h1/cheel2h1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

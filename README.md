@@ -36,6 +36,8 @@ Surrealism Is The..] Stop lying duh.
 </p>
 
 look.im not saying that im the victim here(even tho,which i am)but you should stop spreading rumor about me.rumors spread so quick.too quick even if youre telling it to only one person
+
+everyone driving me nuts its unbearable
 <!--
 **cheel2h1/cheel2h1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

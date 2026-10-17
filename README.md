@@ -20,6 +20,14 @@ GOD i hate you BOTH SO FRIKKING MUCH PLEASE GTFO GTFO GTFO GET THE FUCK OUTTA MY
 and ayan,i shoulda expose you to everyone but i wont.no,this isnt a threat.im just not using my own options on you because i am NOT you
 
 once again,i never expected this from you.so disappointing.i should be laughing at your face and continue to my own little fuck situation but no this bothers me so much and i just know youre enjoying seeing me suffer.are you happy with your friends now?nvm,dont answer
+
+you think im lying NAH im not lying.you want ss?dm me.
+
+KOOKYUKO CHAN!!] whispers: Bro they say ur rcts is it tru
+daza-chuu find me rn] thinks: HELL NAH thats the ***** of pony town😭😭😭
+(me>) ⚪ kadaj] DUDE IM N8T????I SWEAR IM NOT.THAT F4KE
+Surrealism Is The..] Stop lying duh.
++more
 <!--
 **cheel2h1/cheel2h1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

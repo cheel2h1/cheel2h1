@@ -24,7 +24,9 @@ once again,i never expected this from you.so disappointing.i should be laughing 
 you think im lying NAH im not lying.you want ss?dm me.
 
 KOOKYUKO CHAN!!] whispers: Bro they say ur rcts is it tru
+
 daza-chuu find me rn] thinks: HELL NAH thats the ***** of pony town😭😭😭
+
 (me>) ⚪ kadaj] DUDE IM N8T????I SWEAR IM NOT.THAT F4KE
 Surrealism Is The..] Stop lying duh.
 +more

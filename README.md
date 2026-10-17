@@ -1,4 +1,6 @@
 ## hey read there
+the blame so surreal i cant even defend myself
+
 dont need none of you' pity ,i have my own. dont pity me. if you wanna unfriend ,just say so. dont act all zestfest ,youre annoying asf.you weird fuck ,i hate you so much. leave me alone ,i dont even like you.fucking physcho get a life ,youre so hurtful to look.the fact that YOU BOTHER ME THIS MUCH that i am writing all this down is very embarassing ,fucking take accountability .youre such a embarassment i cant believe a person like you exists .i hate you,fuck you get out of my life
 
 .dont act all innocent .you know damn well the shit you did on purpose .dont blame me now .im not even threatening you like how you do to everyone

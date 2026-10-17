@@ -30,6 +30,8 @@ daza-chuu find me rn] thinks: HELL NAH thats the ***** of pony town😭😭😭
 (me>) ⚪ kadaj] DUDE IM N8T????I SWEAR IM NOT.THAT F4KE
 Surrealism Is The..] Stop lying duh.
 +more
+
+look.im not saying that im the victim here(even tho,which i am)but you should stop spreading rumor about me.rumors spread so quick.too quick even if youre telling it to only one person
 <!--
 **cheel2h1/cheel2h1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

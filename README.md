@@ -16,6 +16,8 @@ dont think im stupid,youre only kidding your own self.
 GOD i hate you BOTH SO FRIKKING MUCH PLEASE GTFO GTFO GTFO GET THE FUCK OUTTA MY SOCIAL CIRCLE.i will NEVER trust you,oh fuck you man
 
 and ayan,i shoulda expose you to everyone but i wont.no,this isnt a threat.im just not using my own options on you because i am NOT you
+
+once again,i never expected this from you.so disappointing.i should be laughing at your face and continue to my own little fuck situation but no this bothers me so much and i just know youre enjoying seeing me suffer.are you happy with your friends now?nvm,dont answer
 <!--
 **cheel2h1/cheel2h1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

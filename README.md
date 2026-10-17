@@ -14,6 +14,8 @@ and my own friends, "jay you sweared so much,we cant be friends",well i cannot a
 dont think im stupid,youre only kidding your own self.
 
 GOD i hate you BOTH SO FRIKKING MUCH PLEASE GTFO GTFO GTFO GET THE FUCK OUTTA MY SOCIAL CIRCLE.i will NEVER trust you,oh fuck you man
+
+and ayan,i shoulda expose you to everyone but i wont.no,this isnt a threat.im just not using my own options on you because i am NOT you
 <!--
 **cheel2h1/cheel2h1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

@@ -2,6 +2,8 @@
 dont need none of you' pity ,i have my own. dont pity me. if you wanna unfriend ,just say so. dont act all zestfest ,youre annoying asf.you weird fuck ,i hate you so much. leave me alone ,i dont even like you.fucking physcho get a life ,youre so hurtful to look.the fact that YOU BOTHER ME THIS MUCH that i am writing all this down is very embarassing ,fucking take accountability .youre such a embarassment i cant believe a person like you exists .i hate you,fuck you get out of my life
 
 .dont act all innocent .you know damn well the shit you did on purpose .dont blame me now .im not even threatening you like how you do to everyone
+
+you know what also to another person,i know damn well the fuck youre trying to do.the fact that youre not a lonely fuck just because i met my OWN CLOSE FRIENDS with you and then you trying to make them an ENEMY towards me is such a shame.i thought we both were close friends but no.oh fuck you.FUCK.YOU. I HATE you.i despise you.i hope you see this little fuck text and think "oh,i made him uncomfortable" and leave me alone.you know what hurts the most?that i thought i was doing a GOOD JOB helping some little alone fuck get friends.yeah,no,everyone fuck this lil guy.you made me this way.so be responsible of it,i do NOT care if you get hurt.you deserve this all.i know ALL whatever you told to my friends abot me.dont think youre slick,you little shit
 <!--
 **cheel2h1/cheel2h1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

@@ -1,5 +1,4 @@
-## huu
-yall are very naive i lied to you all im indonesian im not from england fuck you 
+## everyone so jealous of me its okay no one can be me
 
 <!--
 **cheel2h1/cheel2h1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

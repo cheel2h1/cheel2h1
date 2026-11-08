@@ -1,5 +1,8 @@
 ## everyone so jealous of me its okay no one can be me
 
+<p align="center">
+  <img src="https://cdn.phototourl.com/member/2026-11-08-204f0332-1e1f-4eed-a832-60c386c397f9.jpg" width="700">
+</p>
 <!--
 **cheel2h1/cheel2h1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

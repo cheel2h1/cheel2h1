@@ -1,4 +1,4 @@
-## everyone so jealous of me its okay no one can be me
+## eep
 
 <p align="center">
   <img src="https://cdn.phototourl.com/member/2026-11-08-204f0332-1e1f-4eed-a832-60c386c397f9.jpg" width="700">
